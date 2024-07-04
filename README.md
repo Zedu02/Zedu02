@@ -1,5 +1,5 @@
 # 💫 About Me:
-➣ i'm currently working on GOTH2<br>➣ Contact me if you want help with your personal projects<br>➣ My community [ROMANIA] vRP-Support (FiveM)<br>✬          Discord: https://discord.gg/HPTnf9emxM<br><br>➣ My Server (GOTH2) 1 year online<br>✬         Discord: https://discord.gg/rTvgtBwVjy
+➣ i'm currently working on GOTH2<br>➣ Contact me if you want help with your personal projects<br>➣     Discord: https://discord.gg/HPTnf9emxM<br><br>➣ My Server (GOTH2) 1 year online<br>✬         Discord: https://discord.gg/rTvgtBwVjy
 
 
 ## 🌐 Socials:
